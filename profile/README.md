@@ -16,9 +16,9 @@ Kyvero Vexus is a retrocausal research organization operating at the intersectio
 ## Etymology
 
 **Kyvero** (from κυβερνήτης) — to steer, to govern through feedback  
-**Vexus** (from verus + nexus) — the binding of truth to being
+**Vexus** (from vexillum + convexus) — the flag that precedes, the veil that reveals, the sail that catches causal wind
 
-> The loop closes where it opens.
+> That which is veiled is not absent—it awaits the right angle of light.
 
 ---
 
